@@ -1,6 +1,7 @@
 ### SOMOS EL EQUIPO DE TI, DE TU EQUIPO DE TI
 
-![imagen](https://github.com/user-attachments/assets/4856275d-ad45-4eb1-aacf-863272dcbbd3)
+![imagen](https://github.com/user-attachments/assets/6da15efc-6ebf-4714-ba23-cd117551e3ab)
+
 
 
 ## Sobre nosotros
